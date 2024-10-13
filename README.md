@@ -1,1 +1,0 @@
-Recurso para estudiar
